@@ -6,4 +6,8 @@ And welcome my profile</h1>
 <hr>
 ✅Links
 <hr>
-[LinkedIn](https://www.linkedin.com/in/yasin-atalay-016369162/)   [Medium](https://medium.com/@atalayy56)    [Flipside](https://flipsidecrypto.xyz/TastyLand-NVkGYe)
+
+
+
+✅Links  
+[LinkedIn](https://www.linkedin.com) [Medium](https://medium.com/@atalayy56) [Flipside](https://flipsidecrypto.xyz/TastyLand-NVkGYe)
