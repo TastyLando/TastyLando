@@ -9,4 +9,4 @@ And welcome my profile</h1>
 
 
 ✅Links  
-[LinkedIn](https://www.linkedin.com) [Medium](https://medium.com/@atalayy56) [Flipside](https://flipsidecrypto.xyz/TastyLand-NVkGYe)
+[Stack Overflow](https://stackoverflow.com/users/23396780/yasin?tab=profile) [Medium](https://medium.com/@atalayy56) [Flipside](https://flipsidecrypto.xyz/TastyLand-NVkGYe)
