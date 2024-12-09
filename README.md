@@ -1,4 +1,4 @@
-![pp](https://support.musicgateway.com/wp-content/uploads/2021/10/synthwave-picture.jpg)
+![pp](https://giphy.com/embed/l4FGmfnKZRGwtJ4v6)
 <br>
 <h1>Hello its Yasin
 <br>
